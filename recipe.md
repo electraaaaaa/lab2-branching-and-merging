@@ -32,7 +32,7 @@ This recipe makes a three-layer celebration cake with a caramel filling between 
 ## Decoration
 
 - Chocolate curls
-- A drizzle of salted caramel sauce
+- A spoonful of salted caramel sauce
 
 ## Instructions
 
